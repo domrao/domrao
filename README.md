@@ -1,1 +1,11 @@
 yo 
+ds[dasas
+da
+s
+sda
+sa
+sda
+s
+daa
+sd
+sa
