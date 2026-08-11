@@ -1,5 +1,4 @@
-<p align="left">
-hi its me Sam  
-<p align="left">
+### hi its me Sam  <p align="left"> 
 
--> ALL MY IMAGES ARE GONE...... WIP <-
+https://parker2.straw.page/ 
+https://rentry.co/ihateomlette
